@@ -33,6 +33,6 @@ Sinta-se à vontade para fazer sugestões, abrir **Issues** ou submeter **Pull R
 
 Se tiver dúvidas ou sugestões, entre em contato:
 
-- Email: [marianepintucci@gmail.com](mailto:marianepintucci@gmail.com)
+- Email: [marianepintucci@yahoo.com.br](mailto:marianepintucci@yahoo.com.br)
 - LinkedIn: [Mariane Ferraresi Pintucci](https://www.linkedin.com/in/mariane-pintucci-89739747/)
 
